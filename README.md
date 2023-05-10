@@ -1,6 +1,6 @@
 # Some Random Files
 
-# Info Ku
+# Catatan buat operator SMPN2BANGSAL
 http://authlogin.epizy.com/web/
 
 # leak ujian
