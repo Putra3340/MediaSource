@@ -28,6 +28,7 @@ https://docs.google.com/forms/d/e/1FAIpQLSdLYKRveHHnld9N29h4h2DI6ueaEGG5sHFKmUqI
 UN BJAWA
 https://docs.google.com/forms/d/e/1FAIpQLSdrjQnm1ms3ysLdBS8NL-HRNdxEEfGTYbX-dWhYkLpHPfUyDg/viewscore?viewscore=AE0zAgBI6ICG_kMHDYHgSR1ZjZAgjk9-7KY7iDSVjdtXRNfa_6vK7MjDz9MoQDhCzVOECGk
 
-
+MINIMAL FOLLOW IG GW LAH
+https://instagram.com/putra3340_?igshid=ZGUzMzM3NWJiOQ==
 
 <p><p><p><p><p><p><p><p><p><p><p><p>Sstttt...
