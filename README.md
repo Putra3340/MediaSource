@@ -28,6 +28,9 @@ https://docs.google.com/forms/d/e/1FAIpQLSdLYKRveHHnld9N29h4h2DI6ueaEGG5sHFKmUqI
 UN BJAWA
 https://docs.google.com/forms/d/e/1FAIpQLSdrjQnm1ms3ysLdBS8NL-HRNdxEEfGTYbX-dWhYkLpHPfUyDg/viewscore?viewscore=AE0zAgBI6ICG_kMHDYHgSR1ZjZAgjk9-7KY7iDSVjdtXRNfa_6vK7MjDz9MoQDhCzVOECGk
 
+UN PRAKARYA
+https://docs.google.com/forms/d/e/1FAIpQLSdwzuvmKCVKkxNXP2VZBXGzrunClQ2cmtUac4gdwCC56mMVKg/viewscore?pli=1&pli=1&viewscore=AE0zAgAvZ7MK7wsi9N2cgzO45OfC4F1ILTf1VVWFNjVWW46JeYf79PBl8px61gfqqg
+
 MINIMAL FOLLOW IG GW LAH
 https://instagram.com/putra3340_?igshid=ZGUzMzM3NWJiOQ==
 
