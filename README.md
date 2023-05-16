@@ -31,10 +31,11 @@ https://docs.google.com/forms/d/e/1FAIpQLSdrjQnm1ms3ysLdBS8NL-HRNdxEEfGTYbX-dWhY
 UN PRAKARYA
 Random:
 https://docs.google.com/forms/d/e/1FAIpQLSdwzuvmKCVKkxNXP2VZBXGzrunClQ2cmtUac4gdwCC56mMVKg/viewscore?pli=1&pli=1&viewscore=AE0zAgAvZ7MK7wsi9N2cgzO45OfC4F1ILTf1VVWFNjVWW46JeYf79PBl8px61gfqqg
-A semua:
+<p>A semua:
 https://docs.google.com/forms/d/e/1FAIpQLSdwzuvmKCVKkxNXP2VZBXGzrunClQ2cmtUac4gdwCC56mMVKg/viewscore?pli=1&pli=1&viewscore=AE0zAgCxzBoScZvP_K3KEN15B05CjHxKxZ54iBkIUk9SWV77NRXGMzSGq_3jtRGe-Q
-B semua:
+<p>B semua:
 https://docs.google.com/forms/d/e/1FAIpQLSdwzuvmKCVKkxNXP2VZBXGzrunClQ2cmtUac4gdwCC56mMVKg/viewscore?pli=1&pli=1&viewscore=AE0zAgAsKHf-6iv04obtTeLJxBQ4eKdxYQFOpjOxzd_zj6OJBKUfyPPbtqi7EMD3gA
+<p>C semua:
 
 MINIMAL FOLLOW IG GW LAH
 https://instagram.com/putra3340_?igshid=ZGUzMzM3NWJiOQ==
